@@ -1,0 +1,1 @@
+Rohmann, E., & Hereni, M. (2024). Narcissism, aggression, and internet trolling: The moderating role of self-esteem. *Personality and Individual Differences*, *218*, 102450. https://doi.org/10.1016/j.paid.2023.102450
